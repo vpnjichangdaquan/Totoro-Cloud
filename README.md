@@ -13,7 +13,7 @@
 
 龙猫云注册入口：
 
-[龙猫云官网注册入口](https://a.wwaann.com/?s=TotoroCloud)
+[龙猫云官网注册入口](https://a.wwaann.com/?s=totorocloud)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -436,7 +436,7 @@
 
 龙猫云注册入口：
 
-[龙猫云官方注册入口](https://a.wwaann.com/?s=TotoroCloud)
+[龙猫云官方注册入口](https://a.wwaann.com/?s=totorocloud)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
